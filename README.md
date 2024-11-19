@@ -1,7 +1,7 @@
 ### Olá, Eu sou o Eduardo Lemos ✌️😁
 
 - 🔭 Hoje trabalho com Back-end
-- 🌱 Estudando Java Spring Boot
+- 🌱 Sempre em contínuo aprimoramento
 
 
 
