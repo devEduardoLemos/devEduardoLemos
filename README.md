@@ -41,7 +41,9 @@ Com experiência no desenvolvimento de soluções robustas e escaláveis, atuo n
 - Integração entre sistemas e automação de processos.
 - Experiência do usuário em aplicações modernas.
 
-Entre em contato! Sempre aberto a colaborações e novos desafios. ✉️ [Seu Email] | [LinkedIn](https://www.linkedin.com/in/seu-perfil)
+
+
+Entre em contato! Sempre aberto a colaborações e novos desafios. ✉️ eduardo.lemosinc@gmail.com | [LinkedIn](https://www.linkedin.com/in/eduardo-lemos-)
 
 
 
